@@ -1,2 +1,2 @@
 # liy
-I want my website to be about music , music is my happy place.
+I want my website to be about hair. hair is my happy place.
